@@ -1,2 +1,12 @@
-Raw Link
-https://raw.githubusercontent.com/sibhathullamkd/profile-pic/refs/heads/main/253866548%20(2).jpeg
+Solo (Cyn)
+https://raw.githubusercontent.com/sibhathullamkd/profile-pic/refs/heads/main/253866548%20(2).jpeg\
+
+
+No BG -
+https://raw.githubusercontent.com/sibhathullamkd/profile-pic/refs/heads/main/prime/cln-preset.png\
+
+Red BG (root) -
+https://raw.githubusercontent.com/sibhathullamkd/profile-pic/refs/heads/main/prime/cln-prime-x.png
+
+Subject B&W -
+
